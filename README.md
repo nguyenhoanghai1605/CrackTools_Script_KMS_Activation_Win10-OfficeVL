@@ -1,0 +1,1 @@
+## CrackTools_Script_KMS_Activation_Win10-OfficeVL
